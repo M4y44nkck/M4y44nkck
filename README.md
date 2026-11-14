@@ -17,6 +17,6 @@ I'm a 2nd-year Computer Science Diploma student who enjoys building projects, le
 - 🎞️ Visual & video editing
 
 ### 📫 Connect With Me
-- **Email:
+
 - **LinkedIn: www.linkedin.com/in/mayaank-c-k-76a823424
 
